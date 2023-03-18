@@ -6,3 +6,6 @@ Discord: https://discord.gg/GsQBeTtr8E
 ![](https://imgur.com/yX7yr35.png)
 №2
 ![](https://imgur.com/fch6Ifc.png)
+
+# Лиценз
+https://www.dmca.com/r/5xq141r
